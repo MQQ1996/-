@@ -1,4 +1,5 @@
 # -hello QQ
-Congratulations~ 
-You have come into the world of code
-And hope sincerely you will be a master of yourself in the world of code!
+good good study! day day up~~~
+<mqq> is the file of paper sharing in the daliy life!
+Hoping any people can talk about diarization with us, thank you ~~
+
